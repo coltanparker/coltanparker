@@ -1,7 +1,5 @@
 Coltan G. Parker  
-Ph.D. Candidate  
-University of Illinois  
-cgparke2@illinois.edu  
+NSF Postdoctoral Research Fellow     
 
 
 <!---
