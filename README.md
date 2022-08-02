@@ -1,5 +1,6 @@
-Coltan G. Parker  
-NSF Postdoctoral Research Fellow     
+Coltan G. Parker, Ph.D.  
+NSF Postdoctoral Fellow  
+Juntti Lab, University of Maryland
 
 
 <!---
